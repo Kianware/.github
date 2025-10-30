@@ -36,7 +36,7 @@ Dive into our repositories to see our latest projects, powered by the collective
 
 ## 🌐 Connect with Us
 
-Stay updated and connect with us on [LinkedIn/other platforms]. For inquiries or collaboration opportunities, reach out to us at **[meemoo102039@gmail.com](mailto:meemoo102039@gmail.com)**.
+Stay updated and connect with us on [LinkedIn/other platforms]. For inquiries or collaboration opportunities, reach out to us at **[info@kianware.com](mailto:info@kianware.com)**.
 
 ---
 
